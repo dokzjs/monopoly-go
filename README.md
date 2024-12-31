@@ -1,4 +1,4 @@
-# **{{#DEUTSCH~# Kostenlose Würfel Bekommen Für Monopoly GO 2025 Android und iOS**
+# **{{#DEUTSCH~# Kostenlose Würfel Bekommen Für Monopoly GO 2025 Android und iOS V1.36-55**
 
 **Kostenlose Würfel für Monopoly GO** findest du genau hier! Mit diesem Monopoly GO Hack kannst du dir innerhalb sehr kurzer Zeit, unendlich viele Würfel generieren und hast deutlich mehr Spaß wie bisher. Kauf dir alles was du brauchst um erfolgreicher und schneller in Monopoly GO zu sein!
 
